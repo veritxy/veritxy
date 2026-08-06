@@ -1,1 +1,2 @@
 KEEP ON VICTIMIZING VERITY GUYS KEEP ON VICTIMIZING HIM ❤️‍🩹❤️‍🩹 DONT LISTEN TO TUSK ❤️‍🩹
+(im too lazy to make my own readme LMAO)
