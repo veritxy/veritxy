@@ -1,3 +1,3 @@
-KEEP ON VICTIMIZING VERITY GUYS KEEP ON VICTIMIZING HIM ❤️‍🩹❤️‍🩹 DONT LISTEN TO TUSK ❤️‍🩹
+guys keep making groxity content for me 😂✌️ NOWWW
 
 (im too lazy to make my own readme LMAO)
